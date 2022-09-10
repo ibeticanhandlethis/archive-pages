@@ -1,3 +1,5 @@
+(Note: after setup use Game Center for Gaming Mice, Quick Point for Office Mice.)
+
 Mice   (38)
 
 Wired gaming mouse Defender Warhead GM-1100 optic,4 buttons,750-1600dpi

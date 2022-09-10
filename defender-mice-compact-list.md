@@ -65,6 +65,7 @@ Wired gaming mouse Defender Sin'Sister GM-933 6 Buttons, 7200dpi
 Wired gaming mouse Defender Sleipnir GM-927 6 Buttons, 12800dpi
 
 Wired gaming mouse Defender Dark Agent GM-590L 6 Buttons, 12800dpi
+
 Wireless gaming mouse Defender Commander GM-511 Bluetooth,7D,400 mAh,1600dpi
 
 Wireless gaming mouse Defender Oneshot GM-067 LED,7buttons,300 mAh,3200dpi
